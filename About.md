@@ -1,0 +1,5 @@
+- 👋 Willkommen auf dem Future-Coding Github Account
+- 📫 Wir sind erreichbar über:
+- Discord: discord.future-coding.de
+- Email: Soon
+- Twitter: Soon
